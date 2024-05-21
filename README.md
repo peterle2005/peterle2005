@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @peterle2005
-- 👀 I’m interested in a software internship
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on coding projects
-- 📫 How to reach me (407)576 9044
+- 😃Reach me @lepeterthienan@gmail.com
 - 😄 Pronouns: He/him
 
 
