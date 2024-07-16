@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @peterle2005
-- 😃Reach me @peterle.edu@gmail.com
+- 😃Reach me @lepeterthienan@gmail.com
 - 😄 Pronouns: He/him
 
 
